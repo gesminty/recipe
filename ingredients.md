@@ -1,4 +1,5 @@
 Ingredients
+
 ¼ cup brown sugar, packed
 ¼ cup reduced sodium soy sauce
 2 teaspoons sesame oil
@@ -10,5 +11,6 @@ Ingredients
 ¼ teaspoon sesame seeds
 
 Optional
-2 green onions, thinly sliced or regular onion sauteed
-mushrooms, carrots, cucumber, cabbage
+
+2 green onions, thinly sliced or regular onion sauteed (step 2)
+mushrooms, carrots, cucumber, cabbage or any other vegetable will do (fresh or lightly sauteed)
